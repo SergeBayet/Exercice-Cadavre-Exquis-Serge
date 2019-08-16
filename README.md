@@ -19,3 +19,5 @@
 J'ai tout vidé par la voie oral.
 ça piquait un peu.
 <img scr="arcenciel.jpeg">
+
+7. Mais ils étaient pas alcooliques ! ils étaient des pirates ![pirates](index.jpeg)
