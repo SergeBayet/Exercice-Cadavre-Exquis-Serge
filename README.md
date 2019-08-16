@@ -1,2 +1,2 @@
-# Exercice-Cadavre-Exquis-Serge
+# La statue qui parle
 Cadavre exquis
