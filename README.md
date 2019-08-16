@@ -14,3 +14,8 @@
 [logo]: https://p5.storage.canalblog.com/52/67/845308/87085992.jpg
 
 6. parce que le rhum était mauvais
+
+
+J'ai tout vidé par la voie oral.
+ça piquait un peu.
+<img scr="arcenciel.jpeg">
