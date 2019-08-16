@@ -14,3 +14,4 @@
 [logo]: https://p5.storage.canalblog.com/52/67/845308/87085992.jpg
 
 6. parce que le rhum était mauvais
+et que le vin n'était pas cher!
