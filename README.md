@@ -21,3 +21,6 @@ J'ai tout vidé par la voie oral.
 <img scr="arcenciel.jpeg">
 
 7. Mais ils étaient pas alcooliques ! ils étaient des pirates ![pirates](index.jpeg)
+
+
+>rien ne sert de courir
